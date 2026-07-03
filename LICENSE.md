@@ -1,4 +1,4 @@
-#  
+#  jujutsu shenanigans new Scripts offers the most advanced jujutsu shenanigans Script, with anti-ban and custom skins. Perfect for dominating any match.
 
 
 
